@@ -16,10 +16,10 @@ https://youtu.be/wFuhH57OnnI
 
 
 
-lýsing á symon says.
+### lýsing á symon says.
 
 
-1.hvernig virkar simon says:   Það vikrar með því að kveikja á honum með takkanum á hliðinni á boxinu og þú þarft að íta á takkan sem boxið lísir ef þú gerir vitlaust þá byrjaru upp á nítt og heldur áfram þangað til að þú nennir ekki meir.
+### 1.hvernig virkar simon says:   Það vikrar með því að kveikja á honum með takkanum á hliðinni á boxinu og þú þarft að íta á takkan sem boxið lísir ef þú gerir vitlaust þá byrjaru upp á nítt og heldur áfram þangað til að þú nennir ekki meir.
 
 2. 
 
