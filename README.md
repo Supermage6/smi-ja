@@ -16,7 +16,7 @@ hérna er lóðunin https://youtu.be/NDdeOcI0fCM
 
 
 
-
+lýsing á symon says.
 
 
 
