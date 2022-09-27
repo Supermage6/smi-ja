@@ -9,6 +9,10 @@
 
 
 ![image](https://user-images.githubusercontent.com/55285659/192537129-b26c90b0-4c5c-47df-b137-06d169c9df7d.png)
+### og hérna er boxið fyrir ofan
+
+![image](https://user-images.githubusercontent.com/55285659/192554659-b0c9f524-f223-4565-91fd-c069af1ef74a.png)
+
 
 ### hérna er lóðunin https://youtu.be/NDdeOcI0fCM
 
