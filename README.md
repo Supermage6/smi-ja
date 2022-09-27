@@ -19,4 +19,6 @@ hérna er lóðunin https://youtu.be/NDdeOcI0fCM
 lýsing á symon says.
 
 
+1.hvernig virkar simon says: það vikrar með því að kveikja á honum með takkanum á hliðinni á boxinu og þú þarft að íta á takkan sem boxið lísir ef þú gerir vitlaust þá byrjaru upp á nítt og heldur áfram þangað til að þú nennir ekki meir
+
 
